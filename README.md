@@ -12,7 +12,4 @@
 
 <p align="center"> $${\color{#d9ab88}YOU\space CAN'T\space FOOL\space ME.}$$
 
-   <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Kings&size=25&duration=2700&pause=1000&color=99477a&center=true&width=450&lines=%E2%80%98Everyone+makes+mistakes...%E2%80%99'.;%E2%80%98EXCEPT+ME!%E2%80%99"/>
-   </p>
-
+  
