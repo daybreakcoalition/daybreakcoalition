@@ -1,18 +1,25 @@
-<p align="center"> <img width="274" height="274" alt="image" src="https://github.com/user-attachments/assets/9f5fdcbf-0fda-4194-b832-166c7cb75e48" />
+# <img width="314" height="600" alt="image" src="https://github.com/user-attachments/assets/c4cb4369-84e5-4dde-a947-56cc78435a9e" />  
+
+ <img width="531" height="20" alt="image" src="https://github.com/user-attachments/assets/3a441362-777a-415e-9337-71da15d4c062" />
 
 
 
-<p align="center"> $${\color{#9ecae1}"a\space regect."}$$
-<p align="center"> $${\color{#9ecae1}he\space /\space they\space or\space any}$$
-<p align="center"> $${\color{#9ecae1}kier\space /\space puffle \space or \space cassius}$$
-<p align="center"> $${\color{#9ecae1}7teen\space .\space june/28}$$
 
-<p align="center"> im also an artist but i dont take comissions alot!
 
-<p align="center"> $${\color{#9ecae1}im\space the\space real\space badpuffer\space and\space angeredfish.}$$
+# hi there <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/10a6ad04-fec7-4b5c-997a-af609632140b" />
+## c+h and int if u want!
 
-<p align="center"> $${\color{#9ecae1}doubles\space dni.\space and\space basic\space dni\space criteria.}$$
+i dont have a mbti or either a main personality i have DID
 
-<p align="center"> $${\color{#9ecae1}YOU\space CAN'T\space FOOL\space ME.}$$
+im transneutral / agender , i use any prns but mostly he/him or they/them
 
-  
+also im aroace okay?? okayy!
+
+and im born on june 28, feel free to say happy birthday to me on dc! ^^
+
+# links or socials!! <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/65a9fb14-2ab3-4a6a-b9d6-43886f349b30" />
+
+## <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/87b653c1-2477-4f79-a97e-dbbd00ffc418" /> discord : computer.malware
+
+## <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/6ad19652-583b-42c2-b9bd-a3333cb46088" /> [rentreeey:D](https//rentry.co/zaboobooo3)
+
