@@ -26,8 +26,14 @@
 
 ## other info/fndms
 
-<p align="center"> im mostly into roblox myths and any cool fandoms!! i joined back forsaken fandom but none of my cosplays are related to it in any way. Im a big fan of bear alpha(og fan/unc), bad things, the void cult, machine girl(i went to the concerts yeah!!), the smiles family, holoville, orison, sombre alley/wthv, raise a floppa 2 and 1, mc myths/args/ytbers AND ESPECIALLY SAM AND COLBY!!!
+<p align="center"> im mostly into roblox myths, madoka magica and any cool fandoms!! i joined back forsaken fandom but none of my cosplays are related to it in any way. Im a big fan of bear alpha(og fan/unc), bad things, the void cult, machine girl(i went to the concerts yeah!!), the smiles family, holoville, orison, sombre alley/wthv, raise a floppa 2 and 1, mc myths/args/ytbers AND ESPECIALLY SAM AND COLBY!!!
 
 <img width="950" height="225" alt="image" src="https://github.com/user-attachments/assets/a817c2bf-2f71-4954-9a6d-142fa5f08b14" />
+
+![17719472476592927147457498626961](https://github.com/user-attachments/assets/7cb5e6fa-4aa7-4f29-9516-dff135bbec12) ![17719473270827053141448670453144](https://github.com/user-attachments/assets/896f91bc-1f2a-4dba-bc06-f43e512a0f48) ![17719474343674337145422418251310](https://github.com/user-attachments/assets/2144e43a-c6fd-43b2-a6a8-d50b6c7c39cf) ![17719475312555570204938776538488](https://github.com/user-attachments/assets/5a3269dd-6412-482c-b5b7-001efd7aa2ef) ![17719478913858889772026590771694](https://github.com/user-attachments/assets/2697c505-e076-4c91-861f-43e8f11a64e9)
+
+
+
+
 
 
