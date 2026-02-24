@@ -1,4 +1,5 @@
-# wip btw
+<img width="950" height="225" alt="image" src="https://github.com/user-attachments/assets/a817c2bf-2f71-4954-9a6d-142fa5f08b14" />
+
 
 ![17719223382654824383369258275170](https://github.com/user-attachments/assets/f61b8f86-3e5a-4f9d-9b4a-e55711d61267)
  <p align="center"> 
@@ -21,9 +22,12 @@
 
 ## dni iff
 
+<p align="center"> if you are 'pro' to being sensitive especially if im in a bad/mean mood, NSFW artists and content creators cause theyre absolutely disgusting, proshippers/darkshippers, pedophiles/zoophiles, ERP'ers, r*pists, groomers, racists and more other problematic people. (honorable mention to sexual ponies on pt and pedos/problematic ppl defenders/supporters)
 
+## other info/fndms
 
+<p align="center"> im mostly into roblox myths and any cool fandoms!! i joined back forsaken fandom but none of my cosplays are related to it in any way. Im a big fan of bear alpha(og fan/unc), bad things, the void cult, machine girl(i went to the concerts yeah!!), the smiles family, holoville, orison, sombre alley/wthv, raise a floppa 2 and 1, mc myths/args/ytbers AND ESPECIALLY SAM AND COLBY!!!
 
-
+<img width="950" height="225" alt="image" src="https://github.com/user-attachments/assets/a817c2bf-2f71-4954-9a6d-142fa5f08b14" />
 
 
