@@ -1,10 +1,5 @@
-![1775231435845601480781117070938](https://github.com/user-attachments/assets/61b7f588-40bd-43ec-bdf6-acb4a421cf35)
-
-<p align="center"> ${\color{gray}jade/jayden}$
-<p align="center"> ${\color{gray}you \ can \ also \ call \ me \ dogtooth \ or \ any \ characters \ from \ any \ fandoms.}$
-<p align="center"> ${\color{gray}basic \ dni.}$
-<p align="center"> ${\color{gray}im \ pretty \ dry, \ if \ you \ dont \ like \ how \ i \ talk \ just \ leave.}$
+<p align="center"> <img width="1280" height="1280" alt="17765106946594767842810651685464" src="https://github.com/user-attachments/assets/f691ee50-c6bc-4649-953a-7e3b18f2c6d2" />
 
 
-
-<p align="center"> ${\color{gray}almighty, \ bye}$
+  
+  <p align="center"> hi wip ok
